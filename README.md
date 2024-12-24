@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with how to HELP ANYONE TO THERE LIFE locally.
 - 💬 Ask me about film theory, GAMING litterature, social media, or politics.
 - 📫 How to reach me: aryankaushal21@gmail.com
-- 😄 Pronouns: She/Her 
+- 😄 Pronouns: He/His 
 - ⚡ Fun fact: There is always a way out
